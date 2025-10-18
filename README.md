@@ -26,7 +26,7 @@ I enjoy coding to make my life easier—and maybe, in some way, help others too.
 
 ### 📫 Connect with Me
 
-- **Instagram:** [@arli.t1](https://instagram.com/arli.t1)
+- **Instagram:** [@a.tu2001](https://instagram.com/a.tu2001)
 
 ---
 
