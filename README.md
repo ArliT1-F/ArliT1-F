@@ -1,4 +1,4 @@
-# 👋 Hi, I'm ArliT1-F!
+# 👋 Hi, I'm Arli!
 
 **Part-Time Developer** | Python & JavaScript Enthusiast
 
