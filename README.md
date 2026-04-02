@@ -2,6 +2,8 @@
 
 **Part-Time Developer** | Python & JavaScript Enthusiast
 
+You can visit my portfolio [here](https://arlit1-f.github.io/portfolio/)
+
 ---
 
 ### 🚀 About Me
